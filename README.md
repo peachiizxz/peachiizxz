@@ -1,6 +1,2 @@
-<img width="500" height="107" alt="image" src="https://github.com/user-attachments/assets/9ca2b9d5-2e50-4f65-8764-3f97b2700946" />
-
-
-[amys rentry! ♡](https://rentry.co/amesroses)
-
-might add more to this!
+<img width="949" height="637" alt="image" src="https://github.com/user-attachments/assets/20dd82d4-979a-4908-87a8-13a04c83964b" />
+huge wip...
